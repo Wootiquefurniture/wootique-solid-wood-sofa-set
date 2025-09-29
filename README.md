@@ -27,4 +27,4 @@ Unique handcrafted designs
 
 Learn More
 
-Explore Wootique’s Solid Wood Sofa Sets: https://wootique.in/catalog/sofa/
+Explore Wootique’s Solid Wood Sofa Sets: [https://wootique.in/style/solid-wood-sofa-set/]
